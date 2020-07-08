@@ -1,3 +1,3 @@
-# Welcome to my blog
+# **Christina Little**
+###### Progress. Always, in all ways.
 
-I'm glad you are here. I plan to talk about ...
